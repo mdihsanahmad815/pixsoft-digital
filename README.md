@@ -1,2 +1,7 @@
-# pixsoft-digital
-PIXSOFT DIGITAL | Your Trusted Digital Growth Partner. We help businesses grow with content creation, video editing, social media management, e-commerce websites, website maintenance, UI/UX design, motion graphics, product photography, branding, email marketing, and digital marketing solutions. Creative ideas and smart strategies for online growth.
+PIXSOFT DIGITAL — Your Trusted Digital Growth Partner 🚀
+
+We help businesses grow online with creative content, video editing, social media management, e-commerce website development, UI/UX design, product photography, and digital marketing solutions.
+
+Our mission is to turn ideas into impactful digital experiences through creativity, innovation, and technology.
+
+🌐 Creative Solutions | 💻 Modern Websites | 📈 Business Growth
